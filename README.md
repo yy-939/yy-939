@@ -5,7 +5,9 @@
 
 - 📫 How to reach me **yongyixu0903@hotmail.com**
 
-- ⚡ Fun fact **Lefty but cannot play phone use only left hand**
+- 📄 Know about my experiences [www.linkedin.com/in/yongyi-xu](www.linkedin.com/in/yongyi-xu)
+
+- ⚡ Fun fact **Lefty but cannot play phone use only my left hand**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
