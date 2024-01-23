@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **Lefty but cannot play phone use only my left hand**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: **yongyixu0903@hotmail.com / e1132298@u.nus.edu**</h3>
 <p align="left">
 </p>
 
